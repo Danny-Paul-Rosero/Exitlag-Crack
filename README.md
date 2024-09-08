@@ -1,4 +1,3 @@
-[dsadas](https://github.com/)
 # Exitlag Crack
 
 ## Overview
